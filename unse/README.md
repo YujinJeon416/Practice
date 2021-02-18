@@ -10,4 +10,4 @@
 
 
 
-# ⏩ ⏩ ⏩  [운세보러가기! Click!](https://new-year.spartacodingclub.kr/IXmhEC0iJhgF/index.html)  ⏪ ⏪ ⏪
+# ⏩ ⏩ ⏩  [운세보러가기! Click!](https://new-year.spartacodingclub.kr/p3oVXRedvb8w/index.html)  ⏪ ⏪ ⏪
